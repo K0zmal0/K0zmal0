@@ -14,7 +14,7 @@ you can find me better to talk to on discord: venombiter
 
 my pronouns are she/her but he/him works too!
 
-i do have anxiety, and go semi verbal if my brains overloaded or if im overstimulated
+i do have anxiety, and go semi verbal if my brains overloaded or if im overstimulated, im also pretty sensitive.
  
 <!--
 **K0zmal0/K0zmal0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
